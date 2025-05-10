@@ -30,5 +30,5 @@ I’m currently a junior financial crime analyst at a fintech company, with a st
 
 ## 📫 Let’s Connect
 
-- [LinkedIn](www.linkedin.com/in/michel-ortiz-2a2595205) (Add your link)
+- [LinkedIn](www.linkedin.com/in/michel-ortiz-2a2595205) 
 - [Email](do1891748@gmail.com)
